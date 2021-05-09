@@ -2,4 +2,4 @@
 First steps here :)
 
 
-TOday is a beautiful sunday here in Vietnam
+Today is a beautiful sunday here in Vietnam
